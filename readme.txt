@@ -1,2 +1,2 @@
 you are friendly!
-and you are good man.
+and you areÎÒ good man.
